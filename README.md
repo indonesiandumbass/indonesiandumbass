@@ -1,13 +1,13 @@
-# Whats up fuckers?
+# Whats up larpers?
 you found my profile, congrats
 
 btw there aint gonna be anything here
-## shit abt me:
+## stuff abt me:
 - larper
 - unemployed
 
-- 🔭 I’m currently working on nothin
+- 🔭 I’m not working on anything rn
 - 🌱 I’m currently learning java and possibly python
-- 💬 Ask me about: dont ask me shit, cuz i wont have a clue
-- 📫 How to reach me: pls dont
+- 💬 dont ask me shit, cuz i wont have a clue
+- 📫 How to not reach me: 
 - 😄 Pronouns: lin/ux
