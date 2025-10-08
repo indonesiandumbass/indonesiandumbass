@@ -1,4 +1,4 @@
-# Whats up larpers?
+# welcome
 you found my profile, congrats
 
 btw there aint gonna be anything here
