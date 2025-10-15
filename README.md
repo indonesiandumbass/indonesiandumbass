@@ -10,4 +10,4 @@ btw there aint gonna be anything here
 - 🌱 I’m currently learning java and possibly python
 - 💬 dont ask me shit, cuz i wont have a clue
 - 📫 How to not reach me: 
-- 😄 Pronouns: lin/ux
+- 😄 Pronouns: ar/ch btw
